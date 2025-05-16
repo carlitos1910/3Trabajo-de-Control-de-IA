@@ -1,4 +1,4 @@
-En la escuela secundaria "Cuqui Bosch" en Santiago de Cuba (2023-2025), se observa que muchos estudiantes tienen 
+En la escuela Preuniversitario "Cuqui Bosch" en Santiago de Cuba (2023-2025), se observa que muchos estudiantes tienen 
 dificultades en asignaturas como Matemáticas y Física, pero los profesores no pueden adaptar completamente 
 su enseñanza a las necesidades individuales debido a la alta cantidad de alumnos por aula y la falta de recursos.
 
